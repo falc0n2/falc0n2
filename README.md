@@ -1,3 +1,3 @@
 - 👋 Hi, I’m falcon
-- 👀 I’m interested in coding, mineplex remakes, apis & fivem.
+- 👀 I’m interested in coding, mineplex remakes, apis, fivem & minecraft plugins.
 - 📫 We can talk on discord: f̸̔̈́a̵̔̆l̴̽͝c̵͒͝ö̷̝́n̵̈́͠ ඞ#3669
