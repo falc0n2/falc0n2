@@ -1,3 +1,3 @@
 - 👋 Hi, I’m falcon
-- 👀 I’m interested in coding, mineplex remakes, apis, fivem & minecraft plugins.
+- 👀 I think that crackpixel is shit.
 - 📫 We can talk on discord: f̸̔̈́a̵̔̆l̴̽͝c̵͒͝ö̷̝́n̵̈́͠ ඞ#3669
