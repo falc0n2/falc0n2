@@ -1,3 +1,3 @@
 - 👋 Hi, I’m falcon
 - 👀 I think that crackpixel is shit.
-- 📫 We can talk on discord: falcon_nwo#6969
+- 📫 We can talk on discord: falcon_NWO#0069
